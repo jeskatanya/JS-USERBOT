@@ -1,7 +1,7 @@
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+<img src="https://telegra.ph/file/749641a375bb5862000e7.jpg">
     <p align="center"> 
 <a href="https://instagram.com/E_rama11"><img src="https://images.cooltext.com/5537105.png" width="200" height="150" alt="  JS-USERBOT" /></a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+<img src="https://telegra.ph/file/749641a375bb5862000e7.jpghttps://telegra.ph/file/749641a375bb5862000e7.jpg">
     <p align="center"> 
 
 # USERBOT TELEGRAM YANG MENGANDUNG MODUL TOXIC, JANGAN ASAL KETIK YA TOLOL!
